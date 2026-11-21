@@ -1,4 +1,4 @@
-
+──── [୨ৎ](https://github.com/mavakorolev) ────
 
 ![Floresta](https://github.com/NNEIKOS/NNEIKOS/blob/main/phainon-phainon-honkai-star-rail-phainon-hsr-phainon-stir-phainon-happy.gif)
 

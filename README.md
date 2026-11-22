@@ -1,6 +1,6 @@
 ──── [୨ৎ](https://github.com/mavakorolev) ────
 
-![.](https://github.com/NNEIKOS/NNEIKOS/blob/main/lv_0_20261122101152.gif)
+<img src="https://github.com/NNEIKOS/NNEIKOS/blob/main/lv_0_20261122101152.gif" width="400" alt="Descrição do GIF">
 
 ⠀ᵗ᷒ᰰ. Pinteres[t](https://pin.it/2fwVy1CMj)
 

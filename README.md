@@ -1,6 +1,6 @@
 ──── [୨ৎ](https://github.com/mavakorolev) ────
 
-![Floresta](https://github.com/NNEIKOS/NNEIKOS/blob/main/phainon-phainon-honkai-star-rail-phainon-hsr-phainon-stir-phainon-happy.gif)
+![.](https://github.com/NNEIKOS/NNEIKOS/blob/main/lv_0_20261122101152.mp4)
 
 ⠀ᵗ᷒ᰰ. Pinteres[t](https://pin.it/2fwVy1CMj)
 
